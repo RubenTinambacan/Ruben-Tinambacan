@@ -15,6 +15,9 @@ WordPress (Non-Coding), Canva, Adobe Photoshop, CapCut
 A Bit About Me
 
 💼 I'm a Project Manager who thrives on prioritizing tasks and meeting strict deadlines
+
 📈 I have strong skills in calendar management, web design, graphic design, and social media
+
 🎓 I hold a BS in Business Administration (Marketing Management) from Universidad De Zamboanga
+
 🤝 I'm dedicated to improving operational efficiency and ensuring high-quality output
